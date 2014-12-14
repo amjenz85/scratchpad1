@@ -2,7 +2,8 @@ scratchpad1
 ===========
 
 ok
+
 wowthing
 
 
-ok sweet, so i'm in development branch here
+oh dont mind me just doing some FUCKING DEVELOPMENT BITCHES
