@@ -20,3 +20,8 @@ its a feature,
 i'm leet, ya
 when it comes to writin code
 you know that i'll beat ya
+
+gotta write some rhymes
+because they're comin through time
+through space, through ya face
+im so rhymey i put you in your place
