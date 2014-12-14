@@ -16,4 +16,7 @@ oh dont mind me just doing some FUCKING DEVELOPMENT BITCHES
 |____/ \___/ \____|_| |_| |_|   |_____/_/   \_\_|  \___/|_| \_\_____|
                                                                      
 
-
+its a feature,
+i'm leet, ya
+when it comes to writin code
+you know that i'll beat ya
