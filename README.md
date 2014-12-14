@@ -25,3 +25,8 @@ oh dont mind me just doing some FUCKING DEVELOPMENT BITCHES
     because they're comin through time
     through space, through ya face
     im so rhymey i put you in your place
+
+
+whats that?
+
+oh yeah im awesome
